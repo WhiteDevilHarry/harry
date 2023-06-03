@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hindusamrat
+- 👋 Hi, I’m @harry
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ..
 - 📫 How to reach me become alien
